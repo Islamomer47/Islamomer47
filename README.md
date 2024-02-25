@@ -8,6 +8,6 @@
 
 🚀 And with a keen understanding of project feasibility and management, I'm equipped to embark on diverse software endeavors. From concept to execution, I thrive on turning ideas into fully functional projects that resonate with users.
 
-📸 I also love sharing my programming journey on Instagram! Follow along <a href="https://www.instagram.com/islam47.m1?igsh=dTN6aGd5YmQ0cmU1">@islamscode</a> for behind-the-scenes insights and updates on my projects and my journey
+📸 I also love sharing my programming journey on Instagram! Follow along <a href="https://www.instagram.com/islamscode?igsh=MXBycXVvZGN2OGhncQ==">@islamscode</a> for behind-the-scenes insights and updates on my projects and my journey
 
 🌱 On GitHub, I look forward to collaborating with like-minded individuals, sharing insights, and bringing innovative ideas to fruition. Together, let's embark on this exhilarating journey of learning, creation, and collaboration!
